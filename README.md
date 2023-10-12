@@ -1,1 +1,1 @@
-# lib_ayari
+# hola Ayari, te hice tres propuestas de edición, en el repositorio vas a encontrar un total de nueve imágenes, tres las mantuve sin edición por si deseas hacer ajustes personalizados y otras seis con configuraciones de color para impresiones. Saludos veci.
